@@ -1,3 +1,3 @@
 # Activity1Repo
 
-#Ahkayeziah Arevalo-Nakasunod namana po.
+#Ahkayeziah Arevalo-yey,Mag jjollibee kami mamaya.
